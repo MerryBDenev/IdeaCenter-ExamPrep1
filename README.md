@@ -1,1 +1,0 @@
-Idea create center 
